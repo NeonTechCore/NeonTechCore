@@ -12,7 +12,7 @@ We create **fun**, **minimal**, and **professional** content about everything re
 
 ## 🎬 Our YouTube Channel
 Follow us on YouTube for regular drops:
-**[Neon Tech For Ever](https://www.youtube.com/@neontech)**  
+**[Neon Tech For Ever](https://www.youtube.com/@neontechcore)**  
 Where tech becomes visual, simple, and cool.
 
 ## 🧪 Projects
